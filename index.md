@@ -1,1 +1,1 @@
-personal domian
+personal domain
